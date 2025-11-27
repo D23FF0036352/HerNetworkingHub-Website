@@ -4,7 +4,7 @@
 </div>
 
 <div align="center">
-  <strong>Exclusive Women's Community</strong><br>
+  <strong>Exclusive Global Women's Community</strong><br>
   Network • Grow • Succeed
 </div>
 
